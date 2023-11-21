@@ -1,1 +1,0 @@
-# ADHD-Nerd.github.io
